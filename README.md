@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hduvvuru2
-- 👀 I’m interested in medicine, technology, and business
-- 🌱 I’m currently studying a BS in Psychology at Indiana University Bloomington
+- 👀 I’m interested in medicine, technology, and startups
+- 🌱 I’m a Indiana University Bloomington Grad Psych/Chem
 - 💞️ I’m looking to collaborate on hackathons and startups
 - 📫 How to reach me https://www.linkedin.com/in/hduvvur/
